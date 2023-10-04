@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mudit-choksi&label=Profile%20views&color=0e75b6&style=flat" alt="mudit-choksi" /> </p>
 
-- 🌱 I’m currently learning **Mobile Application Development**
+- 🌱 I’m currently learning **Software Development**
 
 - 💬 Ask me about **Full-Stack Development**
 
