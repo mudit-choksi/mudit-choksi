@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **muditdchoksi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Hh-zAl8iGlgK-d469HeqWDuyRqvbCxns/view?usp=drive_link](https://drive.google.com/file/d/1Hh-zAl8iGlgK-d469HeqWDuyRqvbCxns/view?usp=drive_link)
+- 📄 Know about my experiences [here](https://drive.google.com/drive/folders/1DScsN61ZSScm03CN9chjZQAptncu3Sgo?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
